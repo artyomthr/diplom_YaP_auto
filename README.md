@@ -1,0 +1,1 @@
+# diplom_YaP_auto
